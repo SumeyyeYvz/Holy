@@ -1,1 +1,1 @@
-Violets are blue
+Violets are purple
